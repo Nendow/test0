@@ -70,16 +70,16 @@
 
 05:44 [kanashimi no force](https://www.youtube.com/watch?v=Qh3cj6qhlKk)
 
-07:26 Unreleased (A)
+07:26 Unreleased (B)
 
 12:23 [tameshi no mon](https://www.youtube.com/watch?v=NqrSnp2aTF4)
 
-13:36 
+13:29 Unreleased (C)
 
 15:06 [dokidoki ni taku quiz](https://www.youtube.com/watch?v=Jun7i9_Be0I)
 
 16:34 [otiteyuku](https://www.youtube.com/watch?v=XxIQ29fE9eE)
 
-19:08
+19:08 Unreleased (D)
 
 20:30 [hunter x hunter no tema - densetsu](https://www.youtube.com/watch?v=nAIpdZR5XfM)
