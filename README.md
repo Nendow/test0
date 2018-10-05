@@ -83,3 +83,27 @@
 19:08 Unreleased (D)
 
 20:30 [hunter x hunter no tema - densetsu](https://www.youtube.com/watch?v=nAIpdZR5XfM)
+
+## Episode 5:
+
+02:43 [kukuru mountain](https://www.youtube.com/watch?v=s8Zm5UtSPwA)
+
+03:48 [kaze no naka de](https://www.youtube.com/watch?v=6saMnC4rMog)
+
+05:01 Unreleased (E)
+
+05:52 [tameshi no mon](https://www.youtube.com/watch?v=NqrSnp2aTF4)
+
+09:10 [abare kuru ankoku](https://www.youtube.com/watch?v=M5sFZKu9scE)
+
+11:13 [kanashimi no force](https://www.youtube.com/watch?v=Qh3cj6qhlKk)
+
+13:04 [zettaizetumei](https://www.youtube.com/watch?v=ZpYQVA6zGEk)
+
+14:42 [kanashimi no force](https://www.youtube.com/watch?v=Qh3cj6qhlKk)
+
+16:42 [sentokaisin](https://www.youtube.com/watch?v=276W1l-DMHs)
+
+18:52 [Ohayou Harmonica (unreleased)](https://www.youtube.com/watch?v=2c67c-qvYYE&t)
+
+20:32 [hunter shiken goukaku](https://www.youtube.com/watch?v=-ju-WLK-5ak)
