@@ -1,4 +1,4 @@
-01:20 kaze no uta ~ kaze no oto wo ta
+01:20 [kaze no uta ~ kaze no oto wo ta](https://www.youtube.com/watch?v=PQan3qWRFik)
 
 03:23 Nigero
 
