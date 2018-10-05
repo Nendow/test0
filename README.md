@@ -107,3 +107,27 @@
 18:52 [Ohayou Harmonica (unreleased)](https://www.youtube.com/watch?v=2c67c-qvYYE&t)
 
 20:32 [hunter shiken goukaku](https://www.youtube.com/watch?v=-ju-WLK-5ak)
+
+## Episode 6:
+
+1:21 [hunter shiken goukaku](https://www.youtube.com/watch?v=-ju-WLK-5ak)
+
+3:07 [Ohayou Harmonica (unreleased)](https://www.youtube.com/watch?v=2c67c-qvYYE&t)
+
+4:52 [dokidoki ni taku quiz](https://www.youtube.com/watch?v=Jun7i9_Be0I)
+
+6:21 [Tantei Gokko](https://www.youtube.com/watch?v=-JK5hkMP154)
+
+8:20 [tameshi no mon](https://www.youtube.com/watch?v=NqrSnp2aTF4)
+
+9:33 [kataki ka mikata ka](https://www.youtube.com/watch?v=MaOFJIwcc_g)
+
+11:37 [noronji](https://www.youtube.com/watch?v=6Bn-cskZ4kQ)
+
+15:21 [kanashimi no force](https://www.youtube.com/watch?v=Qh3cj6qhlKk)
+
+17:36 [saimincho](https://www.youtube.com/watch?v=NjmaUyJaA1s)
+
+19:10 [otiteyuku](https://www.youtube.com/watch?v=XxIQ29fE9eE)
+
+20:42 [zettaizetumei](https://www.youtube.com/watch?v=ZpYQVA6zGEk)
