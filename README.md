@@ -131,3 +131,52 @@
 19:10 [otiteyuku](https://www.youtube.com/watch?v=XxIQ29fE9eE)
 
 20:42 [zettaizetumei](https://www.youtube.com/watch?v=ZpYQVA6zGEk)
+
+## Episode 7:
+
+05:04 [tameshi no mon](https://www.youtube.com/watch?v=NqrSnp2aTF4)
+
+06:59 [scar, kizu](https://www.youtube.com/watch?v=tbKRhOMBdz8)
+
+08:30 [kataki ka mikata ka](https://www.youtube.com/watch?v=MaOFJIwcc_g)
+
+10:05 [Nigero](https://www.youtube.com/watch?v=Se6X1ujP2f4)
+
+10:45 [kanashimi no force](https://www.youtube.com/watch?v=Qh3cj6qhlKk)
+
+12:16 [saimincho](https://www.youtube.com/watch?v=NjmaUyJaA1s)
+
+14:12 [kaze no uta - kanashimi no zansho](https://www.youtube.com/watch?v=8-nhxnEPJgc)
+
+18:38 [Ohayou Harmonica (unreleased)](https://www.youtube.com/watch?v=2c67c-qvYYE&t)
+
+21:03 [zettaizetumei](https://www.youtube.com/watch?v=ZpYQVA6zGEk)
+
+## Episode 8:
+
+02:05 unreleased
+
+04:31 [kataki ka mikata ka](https://www.youtube.com/watch?v=MaOFJIwcc_g)
+
+05:49 [saimincho](https://www.youtube.com/watch?v=NjmaUyJaA1s)
+
+07:29 [noronji](https://www.youtube.com/watch?v=6Bn-cskZ4kQ)
+
+08:21 [Nigero](https://www.youtube.com/watch?v=Se6X1ujP2f4)
+
+10:06 [kanashimi no force](https://www.youtube.com/watch?v=Qh3cj6qhlKk)
+
+10:55 [tameshi no mon](https://www.youtube.com/watch?v=NqrSnp2aTF4)
+
+13:08 [seigi no ikari](https://www.youtube.com/watch?v=n4N9luWKfeY)
+
+14:20 [zettaizetumei](https://www.youtube.com/watch?v=ZpYQVA6zGEk)
+
+16:29 [scar, kizu](https://www.youtube.com/watch?v=tbKRhOMBdz8)
+
+17:59 [zoltikku ke no yasiki](https://www.youtube.com/watch?v=9mpnWjrOkjo)
+
+19:04 [doti  doti  doti](https://www.youtube.com/watch?v=wR8y_EzaMSg)
+
+20:30 unreleased
+[saimincho](https://www.youtube.com/watch?v=NjmaUyJaA1s)saimincho
