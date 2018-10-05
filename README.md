@@ -180,4 +180,4 @@
 
 20:30 unreleased
 
-20:45 [saimincho](https://www.youtube.com/watch?v=NjmaUyJaA1s)saimincho)
+20:45 [saimincho](https://www.youtube.com/watch?v=NjmaUyJaA1s)
