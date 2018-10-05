@@ -41,3 +41,27 @@
 19:57 [Nigero](https://www.youtube.com/watch?v=Se6X1ujP2f4)
 
 20:58 [shuppatu no hi - miti naru sekai he](https://www.youtube.com/watch?v=-WjFEcd47H4)
+
+## Episode 3:
+
+01:07 [mujakina chousensha - gon no tema](https://www.youtube.com/watch?v=DAsLZ-8eYSU)
+
+03:38 [minatomati](https://www.youtube.com/watch?v=xARG9aGZ-GI)
+
+05:05 [mujakina chousensha - gon no tema](https://www.youtube.com/watch?v=DAsLZ-8eYSU)
+
+06:17 [saimincho](https://www.youtube.com/watch?v=NjmaUyJaA1s)
+
+07:19 [Ohayou Harmonica (unreleased)](https://www.youtube.com/watch?v=2c67c-qvYYE&t)
+
+08:03 [hunter shiken goukaku](https://www.youtube.com/watch?v=-ju-WLK-5ak)
+
+10:17
+
+15:15 [scar, kizu](https://www.youtube.com/watch?v=tbKRhOMBdz8)
+
+17:14 [abare kuru ankoku](https://www.youtube.com/watch?v=M5sFZKu9scE)
+
+19:21 [zettaizetumei](https://www.youtube.com/watch?v=ZpYQVA6zGEk)
+
+20:29 [Ohayou Harmonica (unreleased)](https://www.youtube.com/watch?v=2c67c-qvYYE&t)
