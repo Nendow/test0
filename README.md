@@ -18,4 +18,26 @@
 
 18:06 [hunter x hunter no tema - densetsu](https://www.youtube.com/watch?v=nAIpdZR5XfM)
 
+## Episode 2:
 
+01:06 [hunter x hunter no tema - densetsu](https://www.youtube.com/watch?v=nAIpdZR5XfM)
+
+03:06 [minatomati](https://www.youtube.com/watch?v=xARG9aGZ-GI)
+
+04:50 [shinyachu no game](https://www.youtube.com/watch?v=dXkKZB0iqZg)
+
+07:45 [Tantei Gokko](https://www.youtube.com/watch?v=-JK5hkMP154)
+
+10:13 [mujakina chousensha - gon no tema](https://www.youtube.com/watch?v=DAsLZ-8eYSU)
+
+10:50 [shinobiyoru kage](https://www.youtube.com/watch?v=1QRymebVDvI)
+
+14:23 [natsukashii fuukei](https://www.youtube.com/watch?v=h-36oLRVws0)
+
+15:14 [kanashimi no force](https://www.youtube.com/watch?v=Qh3cj6qhlKk)
+
+17:10 [mujakina chousensha - gon no tema](https://www.youtube.com/watch?v=DAsLZ-8eYSU)
+
+19:57 [Nigero](https://www.youtube.com/watch?v=Se6X1ujP2f4)
+
+20:58 [shuppatu no hi - miti naru sekai he](https://www.youtube.com/watch?v=-WjFEcd47H4)
